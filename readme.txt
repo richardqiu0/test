@@ -1,1 +1,1 @@
-richard is gay
+richard is a jews
